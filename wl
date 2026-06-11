@@ -5,10 +5,6 @@ Testerbro_1
 Testerbro_11
 Testerbro_18
 Fodoklae2010
-Mrspam27
-MrSpam27
-JellyBro279
 hahah_hack23
 upg104l2677f4cgza2l8
 testerbro_2503
-lipesquizo
